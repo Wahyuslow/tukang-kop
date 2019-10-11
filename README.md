@@ -1,0 +1,2 @@
+# tukang-kop
+Pedagang makana
